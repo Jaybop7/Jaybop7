@@ -2,7 +2,7 @@
 - 👀 I’m interested in strategy and simulation 
 - 🌱 I’m currently learning Japanese 
 - 💞️ I’m looking to collaborate on nothing. 
-- 📫 How to reach me nowhere. 
+- 📫 don't contact me. 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: American politics are stupid. 
 
